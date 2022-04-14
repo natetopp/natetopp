@@ -2,4 +2,3 @@
 - 📫 Telegram: https://t.me/abazhak
 - 🧑‍🦰 LinkedIn: https://www.linkedin.com/in/alexey-bazhak-9498b4232
 - 🐦 Twitter: https://twitter.com/ABazhak
-- 📧 Email me: alexbazak76@gmail.com
