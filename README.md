@@ -1,4 +1,2 @@
-- 🌱 Currently learning HTML/CSS/JavaScript
-- 📫 Telegram: https://t.me/abazhak
+- 📫 Telegram: https://t.me/natetopp
 - 🧑‍🦰 LinkedIn: https://www.linkedin.com/in/alexey-bazhak-9498b4232
-- 🐦 Twitter: https://twitter.com/ABazhak
