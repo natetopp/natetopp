@@ -1,2 +1,2 @@
-- 📫 Telegram: https://t.me/natetopp
+- 📫 Telegram: https://t.me/justusrname
 - 🧑‍🦰 LinkedIn: https://www.linkedin.com/in/alexey-bazhak-9498b4232
