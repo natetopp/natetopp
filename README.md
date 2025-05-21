@@ -1,2 +1,2 @@
 - 📫 Telegram: https://t.me/justusrname
-- 🧑‍🦰 LinkedIn: https://www.linkedin.com/in/alexey-bazhak-9498b4232
+- 🧑‍🦰 LinkedIn: https://www.linkedin.com/in/oleksii-bazhak-9498b4232
